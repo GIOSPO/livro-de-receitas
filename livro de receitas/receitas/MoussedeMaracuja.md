@@ -1,4 +1,4 @@
-# Mousse de Maracujá <img src="https://i.pinimg.com/originals/ac/62/46/ac62469f1702ae79b9d910d3ea5cc95b.jpg" alt="Maracuja Vector by MarceloZonta | Maracuja, Vector, Deviantart" style="zoom:5%;" />
+# Mousse de Maracujá <img src="https://i.pinimg.com/originals/ac/62/46/ac62469f1702ae79b9d910d3ea5cc95b.jpg" alt="Maracuja Vector by MarceloZonta | Maracuja, Vector, Deviantart" style="zoom:1%;" />
 
 ### Ingredientes
 
